@@ -6,7 +6,7 @@
 
 This document records the SOPHONIMA visualization of **1 Enoch — Chapter 89**.
 
-Chapter 89 continues the Animal Apocalypse — the extraordinary symbolic dream vision in which the history of humanity is represented through animals, transformations, conflict, judgment, and heavenly intervention.
+Chapter 89 continues the Animal Apocalypse — the extraordinary symbolic dream vision in which history unfolds through animals, transformations, conflict, judgment, and heavenly intervention.
 
 ---
 
@@ -18,49 +18,77 @@ The chapter is being visualized sequentially, passage by passage.
 
 ---
 
-## 🎬 VISUALIZED PASSAGES
+# 🎬 VISUALIZED & PUBLISHED PASSAGES
 
-### ✅ 1 Enoch 89:1–9
+## ✅ 1 Enoch 89:1–9
 
-**Status:** Visualized
+**Status:** Visualized & Published
 
-This passage has been transformed into a cinematic SOPHONIMA visualization as part of the continuing Animal Apocalypse.
+The opening passage of Chapter 89 continues the symbolic narrative of the Animal Apocalypse.
 
-**Publication link:** To be added
+### 🎬 Official SOPHONIMA Visualization
+
+[**WATCH 1 ENOCH 89:1–9 ON INSTAGRAM →**](https://www.instagram.com/reel/Ddgm4YCtCKz/)
 
 ---
 
-### ✅ 1 Enoch 89:10–14
+## ✅ 1 Enoch 89:10–14
 
-**Status:** Visualized
+**Status:** Visualized & Published
 
 The symbolic narrative continues through the imagery of the sheep and the surrounding animals.
 
-**Publication link:** To be added
+### 🎬 Official SOPHONIMA Visualization
+
+[**WATCH 1 ENOCH 89:10–14 ON INSTAGRAM →**](https://www.instagram.com/reel/Ddg7PD3tB0r/)
 
 ---
 
-## ⏳ NEXT PASSAGES
+## ✅ 1 Enoch 89:15–20
 
-Further passages from Chapter 89 will be added here as the visualization journey continues.
+**Status:** Visualized & Published
 
-Each completed passage will receive its own entry in this archive.
+The Animal Apocalypse continues as the symbolic history of the vision moves forward.
+
+### 🎬 Official SOPHONIMA Visualization
+
+[**WATCH 1 ENOCH 89:15–20 ON INSTAGRAM →**](https://www.instagram.com/reel/DdjZeLYtebO/)
 
 ---
 
-## 📜 SOURCE TEXT
+# 📊 CHAPTER 89 PROGRESS
+
+| Passage | Status | Publication |
+|---|---|---|
+| 89:1–9 | ✅ Published | [Watch →](https://www.instagram.com/reel/Ddgm4YCtCKz/) |
+| 89:10–14 | ✅ Published | [Watch →](https://www.instagram.com/reel/Ddg7PD3tB0r/) |
+| 89:15–20 | ✅ Published | [Watch →](https://www.instagram.com/reel/DdjZeLYtebO/) |
+| Further passages | 🔥 In Progress | Coming next |
+
+---
+
+# ⏳ THE JOURNEY CONTINUES
+
+Chapter 89 is not yet complete.
+
+Further passages will be added to this archive as they are visualized and published.
+
+Each completed passage will receive its own permanent entry and direct publication link.
+
+---
+
+# 📜 SOURCE TEXT
 
 The SOPHONIMA project primarily follows the **R. H. Charles English translation of 1 Enoch (1917).**
 
 Chapter and verse references are preserved throughout the visual journey.
 
-The ancient text is the source.
-
-The cinematic imagery is an interpretation of that text.
+**The ancient text is the source.  
+The cinematic imagery is the visual interpretation.**
 
 ---
 
-## 🐑 THE ANIMAL APOCALYPSE
+# 🐑 THE ANIMAL APOCALYPSE
 
 The animal imagery in Chapters 85–90 belongs to the symbolic language of Enoch's dream vision.
 
@@ -70,23 +98,24 @@ Visual interpretation is not presented as additional wording from the ancient te
 
 ---
 
-## 🔗 WATCH THE JOURNEY
+# 🌍 FOLLOW THE JOURNEY
 
-### Instagram
+### 📸 Instagram
 
-**@sophonima**
+[**@sophonima →**](https://www.instagram.com/sophonima/)
 
-https://www.instagram.com/sophonima/
-
-New Chapter 89 visualizations are published as the journey continues.
+New visualizations are published as the journey continues.
 
 ---
 
-## ✨ SOPHONIMA
+<div align="center">
 
-**ANCIENT WORDS • LIVING VISIONS**
+# ✨ SOPHONIMA
 
-Chapter by chapter.  
-Verse by verse.
+### ANCIENT WORDS • LIVING VISIONS
 
-**Chapter 89 continues...**
+**CHAPTER BY CHAPTER • VERSE BY VERSE**
+
+### 🐑 CHAPTER 89 CONTINUES...
+
+</div>
